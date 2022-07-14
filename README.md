@@ -1,2 +1,2 @@
 # zobixsoft
-Zobixsoft Technologies is a software solution provider based in Abuja Nigeria
+Zobixsoft Technologies is a software solutions provider based in Abuja Nigeria
